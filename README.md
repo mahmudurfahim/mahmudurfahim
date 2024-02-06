@@ -16,7 +16,9 @@ What I'm Working On
 
 Get in Touch
 📧 Email: mahmudurchowdhuryfahim@gmail.com
+
 💼 LinkedIn: https://www.linkedin.com/in/mahmudur-chowdhury-fahim
+
 📘 Facebook: https://www.facebook.com/fahim.chowdhury.7758
 
 Feel free to reach out if you have any questions, collaboration opportunities, or just want to connect!
