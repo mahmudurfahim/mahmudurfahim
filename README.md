@@ -28,8 +28,8 @@ Welcome to my GitHub repository! I'm a passionate Project Management Enthuasist 
 
 📧 Email: mahmudurchowdhuryfahim@gmail.com
 
-💼 LinkedIn: Mahmudur Chowdhury
+💼 LinkedIn: https://www.linkedin.com/in/mahmudur-chowdhury-fahim
 
-📘 Facebook: Fahim Chowdhury
+📘 Facebook: https://www.facebook.com/fahim.chowdhury.7758
 
 Feel free to reach out if you have any questions, collaboration opportunities, or just want to connect!
